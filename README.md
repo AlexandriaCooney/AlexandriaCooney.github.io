@@ -1,1 +1,1 @@
-# AlexandriaCooney.github.io
+Alexandria Cooney, atcooney@my.waketech.edu, this is my wake tech account that will hold assignments
